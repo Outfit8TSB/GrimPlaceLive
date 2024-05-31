@@ -8,7 +8,7 @@ The issue [#278](https://github.com/rslashplace2/rslashplace2.github.io/issues/2
 # Let's End darkplace.live
 obviously the 750x750 canvas was literally started as darkplace.live, a dumbest april fools prank of rplace.live
 so we shall end it. we must end the darkplace.live before the deadline.
-Dead Line: July 20 2024.
+Dead Line: July 23 2024.
 Note: if it fails, [Infinite Place Anarchy 2019](https://Outfit8TSB.github.io) Cannot start at 7.20.2024 due to the delay.
 Make July 20, a Great day of Central Alliance & Rassicas Alliance. May God Bless Central Alliance and Rassicas Alliance.
 
@@ -16,3 +16,10 @@ Make July 20, a Great day of Central Alliance & Rassicas Alliance. May God Bless
 CAUTION. THE LIST IS MAY NOT COMPLETE.
 Me(rplace.live game id: zp32pbacc)
 rplacelive:randomplacer
+u/Admirable-Grass-4490
+# Drama is ongoing, Drama is Ongoing.
+Admirable-Grass-4490 has destroyed Rue artwork, the
+rplace.live anti-darkplace movement has sorry
+about this, we must solve this drama.
+[Infinite Place Anarchy 2019](https://Outfit8TSB.github.io) has been delayed to 7.23
+
